@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Manfaat Pijat Refleksi bagi Kesehatan
-date: 20125-12-12 10:18:00
+date: 2025-12-12 10:18:00
 ---
 
 Manfaat Pijat Refleksi bagi Kesehatan yang Perlu Diketahui - Pijat refleksi, juga dikenal sebagai refleksologi, adalah bentuk terapi alternatif yang telah digunakan selama ribuan tahun untuk bisa meningkatkan kesehatan dan kesejahteraan. 
