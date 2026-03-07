@@ -28,7 +28,7 @@ Oh iya, perlu diingat ya, perjalanan ini bukan tol yang nyambung 100% mulus tanp
 
 ## Rincian Tarif Tol Surabaya-Bandung (Golongan I)
 
-Nah, ini dia yang paling ditunggu-tunggu! Buat kendaraan golongan I (mobil pribadi, sedan, jip, pick-up), berikut rincian tarif tol dari Surabaya sampai Bandung berdasarkan data terkini. Penting untuk dicatat [sbobet](https://www.canochiropractic.com/locations/) bahwa beberapa ruas mengalami penyesuaian tarif per Januari 2026 .
+Nah, ini dia yang paling ditunggu-tunggu! Buat kendaraan golongan I (mobil pribadi, sedan, jip, pick-up), berikut rincian tarif tol dari Surabaya sampai Bandung berdasarkan data terkini. Penting untuk dicatat bahwa beberapa ruas mengalami penyesuaian tarif per Januari 2026 .
 
 ### Ruas Tol dari Surabaya menuju Solo:
 
@@ -128,5 +128,6 @@ Perjalanan dari Surabaya ke Bandung menggunakan jalan tol memang pilihan tepat b
 Yang terpenting, persiapkan semuanya dengan matang. Isi saldo e-toll secukupnya (bahkan lebih dari perkiraan), jaga kondisi tubuh, dan patuhi rambu-rambu lalu lintas. Jangan lupa juga untuk selalu cek tarif tol secara *real-time* sebelum berangkat karena bisa saja ada penyesuaian kebijakan dari pengelola tol atau promo diskon musiman .
 
 **Selamat jalan-jalan, Sobat! Nikmati setiap momen perjalanan dari Surabaya yang penuh semangat menuju Bandung yang kreatif. Hati-hati di jalan dan semoga liburannya menyenangkan!**
+
 
 *Punya pengalaman seru perjalanan Surabaya-Bandung? Atau mau nambahin info tarif terbaru? Yuk, share di kolom komentar! Jangan lupa bagikan artikel ini ke teman-temanmu yang juga sedang merencanakan perjalanan serupa!*
